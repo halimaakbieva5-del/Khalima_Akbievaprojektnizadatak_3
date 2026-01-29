@@ -1,0 +1,1 @@
+# Khalima_Akbievaprojektnizadatak_3
